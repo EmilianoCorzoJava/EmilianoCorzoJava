@@ -1,4 +1,4 @@
-### ¡¡¡Holaaaaaaaaaa a todooooooossss!!! 👋
+### ¡¡¡Hola a todos!!! 👋
 - 🔭 Actualmente estoy trabajando en crear una página web para publicar mis mods de Doom
 - 🌱 Estoy aprendiendo (justo ahora) a crear páginas web
 - 📫 Como contactarme: Usa los correos que estan en mi perfil.
